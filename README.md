@@ -1,2 +1,2 @@
-# EzeqiuelGPerez.github.io
+# EzeqiuelGPerez
 Portfolio
